@@ -1,1 +1,1 @@
-This is V's first post on this blog!
+This is V's first post on this blog! Excited!
